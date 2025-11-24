@@ -1,1 +1,0 @@
-# high-consulting-ai-platform
